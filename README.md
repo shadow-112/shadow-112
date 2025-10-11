@@ -1,5 +1,5 @@
 # 💫 About Me:
-better days are coming
+-
 
 
 ## 🌐 Socials:
